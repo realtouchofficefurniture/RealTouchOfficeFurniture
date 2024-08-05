@@ -12,4 +12,4 @@ of the templates I designed for some finance company but a better design was cho
 
 ![screenshot-1](https://github.com/realtouchofficefurniture/RealTouchOfficeFurniture/blob/main/05.08.2024_12.21.57_REC.png)
 ![screenshot-2](https://user-images.githubusercontent.com/30547148/173818501-4b33275b-35ea-4266-bb35-dbc1e068e7fb.png)
-![screenshot-3](https://user-images.githubusercontent.com/30547148/173818534-c6c289ff-c283-46be-916d-8c5d584deb1b.png)
+![screenshot-3](https://github.com/realtouchofficefurniture/RealTouchOfficeFurniture/blob/main/05.08.2024_12.24.01_REC.png)
