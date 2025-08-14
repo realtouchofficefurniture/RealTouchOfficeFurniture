@@ -1,5 +1,5 @@
 
-# Real Touch Office Furniture Trading L.L.C
+# Royal Real Touch Office Furniture Manufacturing  L.L.C
 
 This website is published at https://www.realtouchfurniture.ae/
 
